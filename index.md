@@ -12,8 +12,10 @@ Robots, software, complete streets
 
 **Things I love** - I'm into travel, cycling, music, hiking, rafting, cooking, [freeway improvement](https://i-45coalition.org/), [freeway revolts](https://stoptxdoti45.com/), and jaywalking.
 
-## [Contact me](https://docs.google.com/forms/d/e/1FAIpQLSdN-9ZoOOmD78REs32OTUC2lEwIK3AIX81dSikWoL4myHx5uw/viewform?usp=sharing&ouid=108596392363419045832)
+## Contact me
+
+I'm [accepting messages via Google Form](https://docs.google.com/forms/d/e/1FAIpQLSdN-9ZoOOmD78REs32OTUC2lEwIK3AIX81dSikWoL4myHx5uw/viewform?usp=sharing&ouid=108596392363419045832).
 
 -------
 
-Copyright © 2025 Neal Ehardt - All Rights Reserved.
+Copyright © 2026 Neal Ehardt - All Rights Reserved.
